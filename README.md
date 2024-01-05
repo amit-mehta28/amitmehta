@@ -1,2 +1,2 @@
 # amitmehta
-My Portfolio - Amit Mehta
+porfolio link : https://amit-mehta28.github.io/amitmehta/
